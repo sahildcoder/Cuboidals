@@ -1,3 +1,3 @@
 Cuboidals
 =========
-Twam TOD ready to rock !!
+Team TOD ready to rock !!
